@@ -1,3 +1,2 @@
-# my lekshmi
-mine
+लक्ष्मी
 
